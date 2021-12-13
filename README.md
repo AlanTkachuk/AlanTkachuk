@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AlanTkachuk
-- 👀 I’m interested in challenging myself in new environments and situations, exercising my mental and physical abilities, and not wasting any time.
+- 👀 I’m interested in challenging myself in new environments and situations, exercising my mental and physical abilities, and not wasting time.
 - 🌱 I’m currently learning anything and everything that I find remotely interesting.
 - 📫 Reach me at alannavai99@gmail.com
 
